@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SamAmeele
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning how to program
+- 🌱 I’m currently learning ICT
 - 💞️ I’m looking to collaborate on random shit.
 - 📫 How to reach me, pls dont.
 - 😄 Pronouns: He/Him
